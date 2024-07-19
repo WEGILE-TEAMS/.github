@@ -20,3 +20,5 @@ Buat pertanyaan atau peluang kolaborasi, bisa kontak kita, lewat comment aja, pa
 
 Makasih udah mampir ke repo organisasi kami. Bareng-bareng, kita siap raih kesuksesan dan bikin dampak positif di bidang kita.
 
+![Gambar Tim](https://cdn0-production-images-kly.akamaized.net/eh-G62Ta0LRqU1P6UKopcJMOQ7Q=/1200x675/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/4244356/original/091084300_1669777056-2_YennyAbdurrahm2.jpg)
+
